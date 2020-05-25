@@ -8,8 +8,9 @@ You can reach us and give us questions, comments, or suggestions at thesacredtre
 Enjoy!
 
 ### Stress Busters in These Uncertain Times
-By: Cricket
-    Many of you are worrying and stressing in these times. Many for different things. Maybe you are worried about your nephew, all alone in his apartment. Or maybe you are worried about an elderly neighbor who is at major risk for the virus. Whatever it is, here are five definite stress busters that will help you stay calm and clear. 
+###### By: Cricket
+    
+Many of you are worrying and stressing in these times. Many for different things. Maybe you are worried about your nephew, all alone in his apartment. Or maybe you are worried about an elderly neighbor who is at major risk for the virus. Whatever it is, here are five definite stress busters that will help you stay calm and clear. 
 Play some white noise, sit criss-cross, and close your eyes.
 Any white noise would work (A particular favorite is rain noise).
 Breathe in, and push your open palms up. Breathe out, and pull your hands down into closed fists.
@@ -26,7 +27,7 @@ Stay Stress-Free and Safe!
 
 
 ### LEAF IN THE WIND 
-By Cricket
+###### By Cricket
 *** 
 Come and listen, one and all
 To the girl that never tried.
@@ -44,7 +45,7 @@ This figure, that looked like mist, went around the city, all the way to a grimy
              To be Continued… 
 
 ### ACTIVITIES/PUZZLES
-By: Dragonette (Joke from The 104 Story Treehouse by Andy Griffiths and Terry Denton)
+###### By: Dragonette (Joke from The 104 Story Treehouse by Andy Griffiths and Terry Denton)
 If life gets tough, what do you have that you can always count on?
 No hints! I challenge you to use this chart to figure out the answer yourself. 
 
