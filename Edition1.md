@@ -1,13 +1,13 @@
-#THE CORAZÓN
+# THE CORAZÓN
 Edition 1, May 2020
 
 
-###Foreword
+### Foreword
 For those of you sitting at home, on your couch, clicking through the channels on TV, lying on the grass outside, or else talking to a loved one via Zoom, this newspaper is all for the purpose of giving you some information throughout this saga. We work on giving you the facts so that you can relax at home and get a much-needed break. We also raise awareness for those who are out and breaking their backs to save the lives of others. Thank you.
 You can reach us and give us questions, comments, or suggestions at thesacredtreenews@gmail.com or simonebatra@gmail.com. 
 Enjoy!
 
-###Stress Busters in These Uncertain Times
+### Stress Busters in These Uncertain Times
 By: Cricket
     Many of you are worrying and stressing in these times. Many for different things. Maybe you are worried about your nephew, all alone in his apartment. Or maybe you are worried about an elderly neighbor who is at major risk for the virus. Whatever it is, here are five definite stress busters that will help you stay calm and clear. 
 Play some white noise, sit criss-cross, and close your eyes.
@@ -25,7 +25,7 @@ Stay Stress-Free and Safe!
 
 
 
-###LEAF IN THE WIND 
+### LEAF IN THE WIND 
 By Cricket
 *** 
 Come and listen, one and all
@@ -43,7 +43,7 @@ Her mother, who was reading “how to deal with reckless children”, hardly see
 This figure, that looked like mist, went around the city, all the way to a grimy, dark alley with one old sign: CENTER PLAZA. Then, the mist evaporated in a blink. Which isn’t very common, even for a magical phenomenon like mist. 
              To be Continued… 
 
-###ACTIVITIES/PUZZLES
+### ACTIVITIES/PUZZLES
 By: Dragonette (Joke from The 104 Story Treehouse by Andy Griffiths and Terry Denton)
 If life gets tough, what do you have that you can always count on?
 No hints! I challenge you to use this chart to figure out the answer yourself. 
