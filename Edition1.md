@@ -25,7 +25,6 @@ I find that this one works extremely well. It takes out all of your worries so t
 Stay Stress-Free and Safe!
 
 
-
 ### LEAF IN THE WIND 
 ###### By Cricket
 *** 
@@ -43,6 +42,7 @@ Her mother, who was reading “how to deal with reckless children”, hardly see
 “Don’t worry, Alex,” her mom said. “It’s just a cloud.” Then she huddled the girl tight and they slept off, right on the carpet.
 This figure, that looked like mist, went around the city, all the way to a grimy, dark alley with one old sign: CENTER PLAZA. Then, the mist evaporated in a blink. Which isn’t very common, even for a magical phenomenon like mist. 
              To be Continued… 
+             
 
 ### ACTIVITIES/PUZZLES
 ###### By: Dragonette (Joke from The 104 Story Treehouse by Andy Griffiths and Terry Denton)
