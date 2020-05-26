@@ -54,4 +54,6 @@ Rainbow order
 One = A, two = B, three = C, etc.
 Word unscramble
 
+![Puzzle Image](puzzle.png)
+
 
