@@ -56,4 +56,18 @@ Word unscramble
 
 ![Puzzle Image](puzzle.png)
 
+###The All-Knowing Wizard!
+######By The All-Knowing Wizard
+BIG ANNOUNCEMENT
+Hi people!
+It’s the All-Knowing Wizard!
+No one has sent me any questions yet because I haven’t advertised. You can email me questions at thesacredtreenews@gmail.com. This email account will always show up each week, so if you forget who to email, it’s alright!
+Thanks!
+The All-Knowing Wizard
+
+Thanks For Reading The Headlines! See you Next Time!
+• • • • • • • • • • • • 
+Love from Cricket, Dragonette, and The All-Knowing Wizard
+
+
 
