@@ -32,11 +32,15 @@ Come and listen, one and all
 To the girl that never tried.
 But the one that shall help her will prosper
 And the one that shall fight her must die.
+
 *** 
+
 Common sense defies and delays what must and will go on.
+
 A natural phenomenon has been delayed so much that thousands of years after it was created, something was gifted to a girl who should not have had it at all. In fact, using common sense, Alex Mayor was a normal, tantrum-throwing toddler with no sign of any magic possible. She was the last person anyone in Oakville would have thought to have those special abilities. In fact, no one thought about magic one bit.
 Redundant, isn’t it? Common sense is a screen for common sense.
 There was a strange figure of mist whirling around the city. It moved when no one was looking, then stopped when someone was. Nobody gave it a single thought. 
+
 That is, except for one little girl with her mother, huddled around the fireplace near the window. “Mama, what’s that?” 
 Her mother, who was reading “how to deal with reckless children”, hardly seemed to notice. “Mama?” the little girl said again.
 “Don’t worry, Alex,” her mom said. “It’s just a cloud.” Then she huddled the girl tight and they slept off, right on the carpet.
@@ -59,14 +63,20 @@ Word unscramble
 ### The All-Knowing Wizard!
 ###### By The All-Knowing Wizard
 BIG ANNOUNCEMENT
+
 Hi people!
+
 It’s the All-Knowing Wizard!
+
 No one has sent me any questions yet because I haven’t advertised. You can email me questions at thesacredtreenews@gmail.com. This email account will always show up each week, so if you forget who to email, it’s alright!
 Thanks!
+
 The All-Knowing Wizard
 
 Thanks For Reading The Headlines! See you Next Time!
-• • • • • • • • • • • • 
+
+• • • • • • • • • • • •
+
 Love from Cricket, Dragonette, and The All-Knowing Wizard
 
 
