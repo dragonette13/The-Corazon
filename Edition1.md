@@ -56,8 +56,8 @@ Word unscramble
 
 ![Puzzle Image](puzzle.png)
 
-###The All-Knowing Wizard!
-######By The All-Knowing Wizard
+### The All-Knowing Wizard!
+###### By The All-Knowing Wizard
 BIG ANNOUNCEMENT
 Hi people!
 It’s the All-Knowing Wizard!
